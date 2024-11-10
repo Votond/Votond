@@ -1,3 +1,2 @@
 - 👋 Hi, I’m @Votond
-- 💭 Discord: votond
 - 🔵 Telegram: @Votond
